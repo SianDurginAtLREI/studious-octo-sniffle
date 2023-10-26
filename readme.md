@@ -3,5 +3,4 @@
 - potos chips
 - oat milk
 - just egg
-- VEGAN BREAD bread
-- Clementines
+- VEGAN BREAD bread bread
