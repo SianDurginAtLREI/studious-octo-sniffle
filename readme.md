@@ -1,3 +1,6 @@
 - tomatoes 
 - cucumbers
-- potatoes chips
+- potos chips
+- oat milk
+- just egg
+- VEGAN BREAD bread
