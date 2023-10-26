@@ -4,3 +4,4 @@
 - oat milk
 - just egg
 - VEGAN BREAD bread bread
+- soy sauce
